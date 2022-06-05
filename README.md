@@ -1,4 +1,4 @@
-# Utilizing Customer Analytics for the Development of a Differentiation Strategy
+# Using Customer Analytics for the Development of a Differentiation Strategy
 
 ## Abstract
 
