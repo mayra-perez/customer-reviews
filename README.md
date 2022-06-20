@@ -1,4 +1,4 @@
-# Utilizing Product Features and Customer Generated Data to Develop a Differentiation Strategy"
+# Utilizing Product Features and Customer Generated Data to Develop a Differentiation Strategy
 
 ## Abstract
 
